@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **sujitbhalekar385@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ROk6KGZLlzfwWefNI7F1tWAMpfHPznSx/view?usp=sharing]([https://drive.google.com/file/d/1gzd2eNYs-JQfFnBqp_D0v0rKgG4dPhIZ/view](https://drive.google.com/file/d/1ROk6KGZLlzfwWefNI7F1tWAMpfHPznSx/view?usp=sharing))
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ROk6KGZLlzfwWefNI7F1tWAMpfHPznSx/view?usp=sharing](https://drive.google.com/file/d/1ROk6KGZLlzfwWefNI7F1tWAMpfHPznSx/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
