@@ -16,9 +16,9 @@
 
 - 👨‍💻 All of my projects are available at [https://the-illuminatus.github.io/Dev_Portfolio/](https://the-illuminatus.github.io/Dev_Portfolio/)
 
-- 📫 How to reach me **sujitbhalekar16@gmail.com**
+- 📫 How to reach me **sujitbhalekar385@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1gzd2eNYs-JQfFnBqp_D0v0rKgG4dPhIZ/view](https://drive.google.com/file/d/1gzd2eNYs-JQfFnBqp_D0v0rKgG4dPhIZ/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ROk6KGZLlzfwWefNI7F1tWAMpfHPznSx/view?usp=sharing]([https://drive.google.com/file/d/1gzd2eNYs-JQfFnBqp_D0v0rKgG4dPhIZ/view](https://drive.google.com/file/d/1ROk6KGZLlzfwWefNI7F1tWAMpfHPznSx/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
